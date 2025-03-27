@@ -1,1 +1,1 @@
-# Random-Color-Generator
+# Akash God
